@@ -14,4 +14,6 @@ When I'm not geeking out, I enjoy the fun things with my wife, dogs (Molly, Budd
 
 When I want to feel inadequate, I'll occasionally try and develop my photography and video skills as well!
 
+&nbsp;
+
 https://github.com/johnpickett
